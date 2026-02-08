@@ -4,5 +4,20 @@
 
 <img width="2048" height="273" alt="1000003905" src="https://github.com/user-attachments/assets/fb2d019c-dd04-47e8-a1ed-2533a2d24b7d" />
 
+ ᶠᵉᵉˡ ᶠʳᵉᵉ ᵀᵒ ᴵⁿᵗᵉʳᵃᶜᵗ ᴼʳ ᵀᵒ ᶜᵘᵈᵈˡᵉ ᴬⁿʸᵗⁱᵐᵉ ! (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
+
+✦︎ 𝙈𝙤𝙨𝙩 𝙊𝙛 𝙏𝙝𝙚 𝙏𝙞𝙢𝙚 𝙄'𝙢 𝘼𝙡𝙤𝙣𝙚 𝙎𝙤 𝙄'𝙙 𝙍𝙚𝙖𝙡𝙡𝙮 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 𝘼𝙣𝙮𝙗𝙤𝙙𝙮'𝙨 𝘾𝙤𝙢𝙥𝙖𝙣𝙮 (⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
+
+<img width="545" height="43" alt="1000003903" src="https://github.com/user-attachments/assets/3bd21100-714b-480b-8a4d-2ad64f920845" />
+
+⤿ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
+
+
+  𝙖𝙩𝙖𝙗𝙤𝙤𝙠 ✦︎ 𝙧𝙚𝙣𝙩𝙧𝙮 ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚
+
+꒰ 🪭 ꒱ All Messages And Gimmicks Are Heavily Appreciated ! 
+<img width="2048" height="273" alt="1000003909" src="https://github.com/user-attachments/assets/478112da-7377-4981-97f6-7d396f008038" />
+
+
 
 
