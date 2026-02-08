@@ -15,7 +15,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&redirect=true)
 
 
-  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://missconstruction.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 ( W I P )
+    　 [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://missconstruction.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 WIP
 
 ꒰ 🪭 ꒱ All Messages And Gimmicks Are Heavily Appreciated ! 
 <img width="2048" height="273" alt="1000003909" src="https://github.com/user-attachments/assets/478112da-7377-4981-97f6-7d396f008038" />
