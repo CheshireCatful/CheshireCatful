@@ -12,6 +12,8 @@
 
 ⤿ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&redirect=true)
+
 
   𝙖𝙩𝙖𝙗𝙤𝙤𝙠 ✦︎ 𝙧𝙚𝙣𝙩𝙧𝙮 ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚
 
