@@ -6,6 +6,7 @@
 
     　    　　![1000003910](https://github.com/user-attachments/assets/c795f26a-7865-412f-abfb-8af063002f43) __𝙔𝙤𝙠𝙤__ ᵒʳ __𝘊𝘩𝘪𝘴𝘩𝘪𝘺𝘢__ ![1000003911](https://github.com/user-attachments/assets/ce8cd150-bb30-440f-95da-1f3d8245d805)
 
+  　ᛝ __They__ 𝜗 **Any** ᛝ
 
 
   　 ᶠᵉᵉˡ ᶠʳᵉᵉ ᵀᵒ ᴵⁿᵗᵉʳᵃᶜᵗ ᴼʳ ᵀᵒ ᶜᵘᵈᵈˡᵉ ᴬⁿʸᵗⁱᵐᵉ ! (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
