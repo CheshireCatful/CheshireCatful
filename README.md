@@ -25,6 +25,8 @@
     　 [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 WIP
 
 ꒰ 🪭 ꒱   　All Messages Are Heavily Appreciated ! 
+
+  　 spreading awareness of a specific [person](https://docs.google.com/document/d/1s8aXH3NwO5LqnQq3B2z2QfChc69qyvT8/edit?usp=drivesdk&ouid=111644633525722099022&rtpof=true&sd=true) ! 
 <img width="2048" height="273" alt="1000003909" src="https://github.com/user-attachments/assets/478112da-7377-4981-97f6-7d396f008038" />
 
 
