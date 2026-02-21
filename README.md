@@ -1,4 +1,4 @@
-  　    spreading awareness of a specific [person](https://docs.google.com/document/d/1s8aXH3NwO5LqnQq3B2z2QfChc69qyvT8/edit?usp=drivesdk&ouid=111644633525722099022&rtpof=true&sd=true) ! :P
+(https://docs.google.com/document/d/1s8aXH3NwO5LqnQq3B2z2QfChc69qyvT8/edit?usp=drivesdk&ouid=111644633525722099022&rtpof=true&sd=true) ! :P
 <img width="2048" height="273" alt="1000003904" src="https://github.com/user-attachments/assets/4a8df680-f04c-4112-a477-a36673f2c522" />
 
 <img width="736" height="414" alt="1000003908" src="https://github.com/user-attachments/assets/82c4260e-dc2c-4c4e-990e-fe6d95fd84a0" />
