@@ -27,6 +27,7 @@
 
 ꒰ 🪭 ꒱   　All Messages Are Heavily Appreciated ! 
 
+    　  　　my kny __[oc](https://tsukihanaaomi.straw.page)__!!
 
 <img width="2048" height="273" alt="1000003909" src="https://github.com/user-attachments/assets/478112da-7377-4981-97f6-7d396f008038" />
 
